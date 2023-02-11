@@ -17,3 +17,6 @@ Hello to all the brothers and sisters! Today on our show we're going to talk abo
 4) Massa. Synchronization the first time? no. Sync on the second or maybe 100 times? no, f@ck off. It's already episode 17 of the sync struggle and there's no end in sight! And overall the project is stunning if you read more.
 
 That's it, I'm done!
+<br><br>
+<b>Day 1039~</b><br>
+The holidays are over, Christmas and New Year's Eve are over. It's sad and I'm really sad about it. But the good news is that SUI sent me an invitation to the second phase of the test and, of course, I am already participating in it. So I won't be distracted and I'll see you in a week.
